@@ -1,4 +1,4 @@
-## Hi there, I am Sebit James! 
+## Hi, I am Sebit James! 
 
 An aspiring Data Analyst |Data Scientist | Travel Operations| Customer Service Specialist | Sales Rep
 
